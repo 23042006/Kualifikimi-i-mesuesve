@@ -1,0 +1,1 @@
+# Kualifikimi-i-mesuesve
